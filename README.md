@@ -96,4 +96,9 @@
 ## 参考資料
 
 http://www.freeworldcharter.org/ja/more
+
 http://arcadia11.hatenablog.com/entry/2015/09/21/210000
+
+嫌われない勇気
+
+なぜゴッホは貧乏で、ピカソは金持ちだったのか
